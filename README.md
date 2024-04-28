@@ -2,4 +2,4 @@ Salve Salve
 
 sou estudante da alura e criei esse perfil para compartilhar os projetos que eu faço nela
 
-![](https://media1.tenor.com/m/Va4u9ZAwCmgAAAAd/manoel-gomes-caneta-azul-azul-caneta.gif)
+![](https://tenor.com/pt-BR/view/waking-up-gif-3726619665319815610)
